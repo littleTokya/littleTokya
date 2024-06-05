@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @littleTokya
+- 👀 I’m interested in Minecraft Mod Developing and Python
+- 🌱 I’m currently learning Python
+- 📫 How to reach me discordù id: littletokya
+- 😄 Pronouns: she//her
